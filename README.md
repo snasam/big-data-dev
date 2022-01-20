@@ -12,7 +12,7 @@ I belong to southern part of India, my home town  is Warangal located in the sta
 
 I would like to see myself as full stack developer.
 
-## Interestinf Fact About Me
+## Interesting Fact About Me
 
 I will give my best to the work assigned to me. I’m a quiet and calm girl, but my work speaks more about me. I always enjoy in accepting new challenges and tries to learn something new each day.
 
